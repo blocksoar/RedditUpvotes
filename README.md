@@ -1,13 +1,12 @@
-# RedditUpvotes
-Service for boosting reddit upvotes and boosting reddit account karma
+Upvotes.io Service for boosting reddit upvotes and boosting reddit account karma
 
-BoostRedditUpvotes
+Upvotes.io
 
-BoostRedditUpvotes: Buy Reddit Upvotes
+Upvotes.io: Buy Reddit Upvotes
 
 Buy Reddit Upvotes and Accounts
 
-BoostRedditUpvotes is a social media marketing service that allows businesses and causes to promote their content on Reddit. Services for near instant delivery of Reddit upvotes and Reddit accounts.
+Upvotes.io is a social media marketing service that allows businesses and causes to promote their content on Reddit. Services for near instant delivery of Reddit upvotes and Reddit accounts.
 
 Sample Content
 
