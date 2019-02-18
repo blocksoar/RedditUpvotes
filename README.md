@@ -1,16 +1,16 @@
-Upvotes.io Service for boosting reddit upvotes and boosting reddit account karma
+Reddit-marketing.pro Service for boosting reddit upvotes and boosting reddit account karma
 
-Upvotes.io
+Reddit-marketing.pro
 
-Upvotes.io: Buy Reddit Upvotes
+Reddit-marketing.pro: Buy Reddit Upvotes
 
 Buy Reddit Upvotes and Accounts
 
-Upvotes.io is a social media marketing service that allows businesses and causes to promote their content on Reddit. Services for near instant delivery of Reddit upvotes and Reddit accounts.
+Reddit-marketing.pro is a social media marketing service that allows businesses and causes to promote their content on Reddit. Services for near instant delivery of Reddit upvotes and Reddit accounts.
 
 Sample Content
 
 Marketplace:
 
-<a href="https://upvotes.io/buy-reddit-upvotes/">Buy Reddit Upvotes</a></br>
-<a href="https://upvotes.io">Buy Reddit Accounts</a>
+<a href="https://reddit-marketing.pro/buy-reddit-upvotes-cheap/">Buy Reddit Upvotes</a></br>
+<a href="https://reddit-marketing.pro">Buy Reddit Accounts</a>
